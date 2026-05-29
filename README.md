@@ -1,7 +1,5 @@
 # Hiring Toolbox
 
-My library of resources about Hiring
+My [library of resources](https://drive.proton.me/urls/3R0R8Z2HPM#2P5hBO4DyxUh) about Hiring
 
-# [Hiring] Powerful questions
-
-A [file](https://drive.proton.me/urls/BHENFZFAKM#pK2hcmnr1oGx) with hundreds of situational
+<img width="881" height="846" alt="image" src="https://github.com/user-attachments/assets/97fb204e-cd0f-4bfa-b475-bb013b4751f7" />
